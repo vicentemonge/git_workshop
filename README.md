@@ -54,3 +54,17 @@ Se quitó el abrigo.
 Se sentó.
 
 Y mientras el pueblo dormía tranquilo, convencido de que nada había cambiado, el faro siguió girando.
+
+Esa persona fue una mujer que no vivía en el pueblo.
+
+Había llegado hacía poco, ocupando la casa que durante años permaneció cerrada después de que Álvaro desapareciera de las conversaciones sin que nadie supiera exactamente cuándo. No preguntó por él. Tampoco por el faro. Simplemente observaba el mar con una atención impropia de una visitante.
+
+La noche en que la luz no apareció, lo notó de inmediato.
+
+No era marinera ni ingeniera. Era bibliotecaria. Estaba acostumbrada a los silencios que significan algo. A las ausencias que no son casuales. Aquella oscuridad tenía estructura. Tenía intención.
+
+Caminó hasta el faro sin saber por qué sabía el camino.
+
+Encontró la puerta entornada. Dentro, el aire estaba quieto, cargado de una calma que no pertenecía a los edificios abandonados, sino a los lugares que han cumplido su función y esperan juicio. Sobre la mesa, el cuaderno la aguardaba, abierto por la última página escrita.
+
+Leyó despacio.
