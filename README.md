@@ -4,7 +4,7 @@ Cuando el faro dejó de girar, nadie en el pueblo lo notó.
 
 No porque no fuese importante, sino porque llevaba años funcionando solo. Sin farero, sin visitas, sin explicaciones. Cada noche, a la misma hora, la luz se encendía y barría el mar con una disciplina que ya no pertenecía a nadie. Como un gesto heredado que nadie recordaba haber aprendido.
 
-Álvaro sí lo notó.
+Álvaro sí lo notó. Y madre de dios!!
 
 Vivía en la última casa antes del acantilado, una vivienda estrecha y mal aislada que parecía haber sido empujada hasta allí por cansancio. Dormía poco. Observaba mucho. Conocía el ritmo del faro como se conocen los propios latidos: sin contarlos, pero sabiendo cuándo algo falla.
 
